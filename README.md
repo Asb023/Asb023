@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Asb023
-- 📖 I’m currently learning system security at Henallux
+- 📖 Student in IT at Henallux
